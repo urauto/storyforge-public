@@ -138,4 +138,4 @@ Continued use of the App after changes constitutes acceptance of the updated pol
 
 If you have any questions or concerns about this Privacy Policy or data practices, please contact:
 
-**Email:** support@urauto.ai
+**Email:** yavuzuragun@gmail.com
